@@ -1,4 +1,4 @@
-# hfkjdo´lfdgd BEM-VINDO LADRÃO DE OLHAGEM kmgfjkdmnc,dfkjhdfkjhfd
+# hfkjdo´lfdgd BEM-VINDO LADRÃO DE OLHAGEM
 
 ye
 

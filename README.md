@@ -10,8 +10,10 @@ olheiro
 
 como ja dizia Sun Tzu em Arte Da Guerra
 > Bizoie antes de ser bizoiado
+
 isso é verdade, ta la no livro
 
 ### INSIRA TEXTO AQUI
 
-a verdade [Governo Americano Te Espia Via Televisões E Tablets](https://chevrolet.com).
+a verdade [governo americano te espia via televisões e tablets](https://chevrolet.com)
+afyg [fgdjhdifjghjdEUYFDGSUJHEWGSBDJFHANHFWI3Ygrh5j4y6terd](https://toyota.com).

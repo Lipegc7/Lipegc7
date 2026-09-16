@@ -1,16 +1,17 @@
-## Hi there 👋
+# hfkjdo´lfdgd BEM-VINDO LADRÃO DE OLHAGEM kmgfjkdmnc,dfkjhdfkjhfd
 
-<!--
-**Lipegc7/Lipegc7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ye
 
-Here are some ideas to get you started:
+para de bizoiar minhas coisa
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+olheiro
+
+## eles tão de olho ne nois, fica atento
+
+como ja dizia Sun Tzu em Arte Da Guerra
+> Bizoie antes de ser bizoiado
+isso é verdade, ta la no livro
+
+### INSIRA TEXTO AQUI
+
+a verdade [Governo Americano Te Espia Via Televisões E Tablets](https://chevrolet.com).

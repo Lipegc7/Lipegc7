@@ -6,6 +6,8 @@ para de bizoiar minhas coisa
 
 olheiro
 
+![the truth](https://media1.tenor.com/m/LELFrKy_hLsAAAAd/gorilla-spin.gif)
+
 ## eles tão de olho ne nois, fica atento
 
 como ja dizia Sun Tzu em Arte Da Guerra

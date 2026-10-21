@@ -6,7 +6,7 @@ para de bizoiar minhas coisa
 
 olheiro
 
-![the truth](https://media1.tenor.com/m/LELFrKy_hLsAAAAd/gorilla-spin.gif)
+![the truth](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExdjJkbm44dHZlcWxvcnBlcG9qb3B1eDluMDB2ajZubTNjaGY4dDhuZCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/faEWMBAmEzIU0ZSyok/giphy.gif)
 
 ## eles tão de olho ne nois, fica atento
 
